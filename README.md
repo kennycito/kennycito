@@ -1,6 +1,6 @@
 # wassup?
 
-I'm Brian also known as Jirri and Robbert. I love coding and cibersecurity.
+I'm Kenny also known as dix and Freakboys. I love coding and cibersecurity.
 
 I'm currently searching for an enterprise in France to accept me as an internship for 18 months :)
 
